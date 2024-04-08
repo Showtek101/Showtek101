@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Showtek101
+- 👋 Hi, I’m Tomek
 - 👀 I’m interested in gaming/tech/military
 - 🌱 I’m currently learning Unreal Engine 5
 - 📫 How to reach me on discord Showtek101
